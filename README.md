@@ -5,8 +5,7 @@
 ![image](https://gifs.crd.co/assets/images/gallery09/aa7c0de2_original.gif?v=d417d32b)
 <br/>
 hello
-you can call me captain or lou!
-most of my usernames that i use for red7 related stuff tend to incorporate that! (in case you're curious, [here's who captain lou is](https://en.m.wikipedia.org/wiki/Lou_Albano))
+you can call me captain, mansay or lou, those are 3 aliases i have here on the internet (in case you're curious, [here's who captain lou is](https://en.m.wikipedia.org/wiki/Lou_Albano))
 
 i don't know what i'm doing
 
